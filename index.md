@@ -1,10 +1,10 @@
-# Política de Privacidad de MotoExpress
+# Política de Privacidad de MotoExpress Barlovento
 
 Última actualización: 27 de julio de 2026
 
-**MotoExpress** (en adelante, "la Aplicación") está comprometida con la Protección de la privacidad de sus usuarios (pasajeros y conductores motorizados. Esta Política de Privacidad describe cómo recopilamos, utilizamos, almacenamos y protegemos la información personal cuando utilizas nuestra aplicación móvil.
+**MotoExpress Barlovento** (en adelante, "la Aplicación") está comprometida con la Protección de la privacidad de sus usuarios (pasajeros y conductores motorizados. Esta Política de Privacidad describe cómo recopilamos, utilizamos, almacenamos y protegemos la información personal cuando utilizas nuestra aplicación móvil.
 
-Al descargar, instalar o utilizar **MotoExpress**, aceptas las prácticas descritas en esta política.
+Al descargar, instalar o utilizar **MotoExpress Barlovento**, aceptas las prácticas descritas en esta política.
 
 ---
 
