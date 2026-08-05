@@ -65,5 +65,5 @@ Podemos actualizar nuestra Política de Privacidad periódicamente. Te notificar
 
 Si tienes preguntas, dudas o deseas solicitar la eliminación de tus datos, puedes contactarnos a través de:
 
-* **Correo electrónico de soporte:** csanabria53@gmail.com
+* **Correo electrónico de soporte:** motoexpressbarlovento@gmail.com
 * **Ubicación:** Miranda, Venezuela.
